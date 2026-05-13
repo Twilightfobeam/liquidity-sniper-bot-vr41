@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency liquidity sniper bot | slippage-control + bundle-transactions, the #1 liquidity sniper bot. Includes slippage-control and
 
 
 
